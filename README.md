@@ -1,2 +1,5 @@
 # CV
-Curriculum Vital de Matheo Guayaquil
+Curriculum Vitae de Matheo Guayaquil
+MAtheo Guayaquil
+2do "A" Matutino
+Curriculum Actualizado a mayo del 2025
